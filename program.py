@@ -1,1 +1,0 @@
-# Paya Shatrang
